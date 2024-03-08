@@ -1,3 +1,3 @@
 # Chapter 2: Normal Story part 2
 
-Just as Lillllly thought she couldn't run any further, she stumbled upon a hidden alleyway and ducked inside. The man followed, but as he turned the corner, he was met with a group of Lilllllly's friends who had been alerted to her distress.
+One day, while walking home from school, Lily noticed a strange man following her. Panic set in as Lily realized she was being chased. She darted down a side street, hoping to lose him, but the man remained relentless in his pursuit.

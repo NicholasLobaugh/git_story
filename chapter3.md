@@ -1,3 +1,3 @@
 # Chapter 3: normal sotry three
 
-One day, while walking home from school, Lillly noticed a strange man following her. Panic set in as Lilllly realized she was being chased. She darted down a side street, hoping to lose him, but the man remained relentless in his pursuit.
+Just as Lily thought she couldn't run any further, she stumbled upon a hidden alleyway and ducked inside. The man followed, but as he turned the corner, he was met with a group of Lily's friends who had been alerted to her distress.
